@@ -8,12 +8,5 @@ Ntar Aja Lagi Males:v
 
 70 Followers baru di publikasikan:v
 
-kau pikir memeras itu ga enak?
 
-ga dong
-
-ya dong
-
-eh salah
-
-enak dong:v
+Project ini belum selesai jadi jangan di fork dulu...
